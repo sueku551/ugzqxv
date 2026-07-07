@@ -1,0 +1,140 @@
+欢迎进入我的世界《将进酒》原文翻译及赏析_作者李白
+君不见，黄河之水天上来，奔流到海不复回。
+ 君不见，高堂明镜悲白发，朝如青丝暮成雪。
+ 人生得意须尽欢，莫使金樽空对月。
+ 天生我材必有用，千金散尽还复来。
+ 烹羊宰牛且为乐，会须一饮三百杯。
+ 岑夫子，丹丘生，将进酒，杯莫停。
+ 与君歌一曲，请君为我倾耳听。(倾耳听 一作：侧耳听)
+ 钟鼓馔玉不足贵，但愿长醉不复醒。(不足贵 一作：何足贵；不复醒 一作：不愿醒不用醒)
+ 古来圣贤皆寂寞，惟有饮者留其名。(古来 一作：自古；惟 通：唯)
+ 陈王昔时宴平乐，斗酒十千恣欢谑。
+ 主人何为言少钱，径须沽取对君酌。
+ 五花马，千金裘，呼儿将出换美酒，与尔同销万古愁。   
+承范枪巴儋
+https://aozhou10kaijiang.com.cn
+https://aozhou10kaijilu.com.cn
+https://aozhou10jihuawang.com.cn
+https://aozhou10rengongjihua.com.cn
+https://yuceaozhou10dehaoma.com.cn
+https://aozhou10mianfeijihua.com.cn
+https://aozhou10guanjunjihua.com.cn
+https://aozhou10kaijiangjieguo.com.cn
+https://aozhou10guanwangkaijiang.com.cn
+https://yuceaozhou10.com.cn
+https://aozhou10yulepingtai.com.cn
+https://aozhou10kaijiangzhibo.com.cn
+https://aozhou10dingweidanquantianjihua.com.cn
+https://aozhou10kaijiangwang.com.cn
+https://aozhou10zhibo.com.cn
+https://aozhou10jihuaruanjian.com.cn
+https://aozhou10shuangmian.com.cn
+https://aozhou10lishicaidaohang.com.cn
+https://aozhou10kaijiangruanjian.com.cn
+https://aozhou10jihuarengong.com.cn
+https://xingyunaozhou10jihua.com.cn
+https://aozhouxingyun10yucewuma.com.cn
+《将进酒》原文翻译及赏析_作者李白
+君不见，黄河之水天上来，奔流到海不复回。
+ 君不见，高堂明镜悲白发，朝如青丝暮成雪。
+ 人生得意须尽欢，莫使金樽空对月。
+ 天生我材必有用，千金散尽还复来。
+ 烹羊宰牛且为乐，会须一饮三百杯。
+ 岑夫子，丹丘生，将进酒，杯莫停。
+ 与君歌一曲，请君为我倾耳听。(倾耳听 一作：侧耳听)
+ 钟鼓馔玉不足贵，但愿长醉不复醒。(不足贵 一作：何足贵；不复醒 一作：不愿醒不用醒)
+ 古来圣贤皆寂寞，惟有饮者留其名。(古来 一作：自古；惟 通：唯)
+ 陈王昔时宴平乐，斗酒十千恣欢谑。
+ 主人何为言少钱，径须沽取对君酌。
+ 五花马，千金裘，呼儿将出换美酒，与尔同销万古愁。   
+https://aozhouxingyun10guanjunyuce.com.cn
+https://aozhouxingyun10jihuadanshuangbaifenbai.com.cn
+https://168aozhouxingyun10zhuanjiayuce.com.cn
+https://aozhouxingyun10guanjunbixuzhongdeyuce.com.cn
+https://aozhouxingyun10rengongjihualiaotianshi.com.cn
+https://aozhouxingyun10zhuanjiajihua.com.cn
+https://aozhouxingyun10guanjunyucedanshuang.com.cn
+https://aozhouxingyun10yucewumabaifenzhibai.com.cn
+https://aozhouxingyun10zhuanjiajihuamianfei.com.cn
+https://aozhouxingyun10rengongjihuaruanjian.com.cn
+https://aozhouxingyun10yucewumazhuanjia.com.cn
+https://aozhouxingyun10yucejihuadanshuangbaifenbai.com.cn
+https://aozhouxingyun10wangyezaixianliaotianshi.com.cn
+https://aozhouxingyun10chuangguanjihua.com.cn
+https://aozhouxingyun10liuma.com.cn
+https://aozhouxingyun10kaizhuang.com.cn
+https://aozhouxingyun10jihuawang.com.cn
+https://cailllaozhouxingyun10wangzhi.com.cn
+https://aozhouxingyun10jihua.com.cn
+https://aozhouxingyun10baoying.com.cn
+https://aozhouxingyun10kaijiangjilu.com.cn
+https://aozhouxingyun10wang.com.cn
+https://aozhouxingyun10xianshangjihua.com.cn
+https://aozhouxingyun10mianfeijihua.com.cn
+https://aozhouxingyun10jihuazuizhun.com.cn
+https://aozhouxingyun10yiqijihua.com.cn
+https://aozhouxingyun5kaijiangzoushitu.com.cn
+https://aozhouxingyun5kaijiangjieguolishichaxun.com.cn
+https://aozhouxingyun5heikejiyuce.com.cn
+https://aozhouxingyun5168kaijiang.com.cn
+https://aozhouxingyun5ruanjianxiazai.com.cn
+https://aozhouxingyun5gewei.com.cn
+https://aozhouxingyun5jihuaqun.com.cn
+https://aozhouxingyun5jisuangongshi.com.cn
+https://aozhouxingyun5quantianjihuawang.com.cn
+https://aozhouxingyun515mingjihua.com.cn
+《将进酒》原文翻译及赏析_作者李白
+君不见，黄河之水天上来，奔流到海不复回。
+ 君不见，高堂明镜悲白发，朝如青丝暮成雪。
+ 人生得意须尽欢，莫使金樽空对月。
+ 天生我材必有用，千金散尽还复来。
+ 烹羊宰牛且为乐，会须一饮三百杯。
+ 岑夫子，丹丘生，将进酒，杯莫停。
+ 与君歌一曲，请君为我倾耳听。(倾耳听 一作：侧耳听)
+ 钟鼓馔玉不足贵，但愿长醉不复醒。(不足贵 一作：何足贵；不复醒 一作：不愿醒不用醒)
+ 古来圣贤皆寂寞，惟有饮者留其名。(古来 一作：自古；惟 通：唯)
+ 陈王昔时宴平乐，斗酒十千恣欢谑。
+ 主人何为言少钱，径须沽取对君酌。
+ 五花马，千金裘，呼儿将出换美酒，与尔同销万古愁。   
+https://aozhouxingyun51234pojie.com.cn
+https://aozhouxingyun5gongshi.com.cn
+https://aozhouxingyun5geweishamatuijianyixia.com.cn
+https://aozhouxingyun5tiqianzhidao.com.cn
+https://aozhouxingyun5kaijiangwangzhan.com.cn
+https://aozhouxingyun5yuce.com.cn
+https://aozhouxingyun5guanwang.com.cn
+https://aozhouxingyun5yucejihua.com.cn
+https://aozhouxingyun5qianweijihua.com.cn
+https://aozhouxingyun5quantianyucejihua.com.cn
+https://aozhouxingyun5zenyangkanhao.com.cn
+https://aozhouxingyun5shahaojihua.com.cn
+https://aozhouxingyun5kaijiangjieguolishijiluchaxun.com.cn
+https://aozhouxingyun5xinyuce.com.cn
+https://aozhouxingyun5tuijianjihua.com.cn
+https://aozhouxingyun5shujuyuce.com.cn
+https://aozhouxingyun5zaixianyucewang.com.cn
+https://aozhouxingyun5jihuazaixianrengongjihua.com.cn
+https://aozhouxingyun5jihuaruanjian.com.cn
+https://aozhouxingyun5rengongjihua.com.cn
+https://aozhouxingyun5guanwangkaijiangjieguo.com.cn
+https://aozhouxingyun5appgendanqun.com.cn
+https://aozhouxingyun5kaijiangjieguozhibo.com.cn
+https://aozhouxingyun5kaijiangjiushitu.com.cn
+https://aozhouxingyun5hezhizoushitu.com.cn
+https://aozhouxingyun5zhushou.com.cn
+https://aozhouxingyun5zaixianjihua.com.cn
+https://aozhouxingyun5dingxiangzoushiyuce.com.cn
+https://hanyouaozhouxingyun5decaipiaoapp.com.cn
+https://aozhou5zoushitu.com.cn
+https://aozhou5yucejihua.com.cn
+https://aozhou5guanwangkaijiang.com.cn
+https://aozhou5kaijiangwangzhan.com.cn
+https://aozhou5jihuaruanjian.com.cn
+https://aozhou5jihuawang.com.cn
+https://aozhou5jihua.com.cn
+https://aozhou5kaijiang.com.cn
+https://aozhou5guanwangzoushi.com.cn
+https://aozhou5ma1qiquantianjihua.com.cn
+https://aozhou5xingyunrengongjihua.com.cn
+https://xingyunaozhou5kaijiangjihua.com.cn
+https://aozhou5xingyunjihua.com.cn
